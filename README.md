@@ -27,3 +27,5 @@
 ***
 #### [DIYSHOP.COM.UA](https://diyshop.com.ua)<br>
 ***
+#### [DRONE.STORE](https://drono.store)<br>
+***
