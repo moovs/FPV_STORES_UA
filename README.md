@@ -1,7 +1,7 @@
 # FPV_STORES_UA
 Магазины в которых можно купить FPV комплектующие в Украине.
 ***
-#### [FLYMOD.NET](flymod.net)<br>
+#### [FLYMOD.NET](https://flymod.net)<br>
 ***
 #### [HOBBYMANIA.COM.UA](https://hobbymania.com.ua)<br>
 ***
