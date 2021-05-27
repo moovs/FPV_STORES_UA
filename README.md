@@ -29,3 +29,5 @@
 ***
 #### [DRONO.STORE](https://drono.store)<br>
 ***
+#### [MAGNITS.COM.UA](https://www.magnits.com.ua)<br>
+***
